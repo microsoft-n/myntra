@@ -1,5 +1,3 @@
 i am arun kumar reddy palyam 
 working in ss associates .....
-i am in kamala nagar...
-
-i am updating at 12:42 pm
+i am in kamala nagar..."w:
